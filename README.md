@@ -35,54 +35,58 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Quo vadis? A iust censure of travell as it is commonly vndertaken by the gentlemen of our nation. By
+
+1. TO THE RIGHT HONORABLE, my ſingular good Lord, EDWARD Lord DENNY, Baron of WALTHAM.
+
 #####Body#####
 
-1. Sect. 1.
+1. QVO VADIS?
 
-1. Sect. 2.
+    _ Sect. 1.
 
-1. Sect. 3.
+    _ Sect. 2.
 
-1. Se••. 4.
+    _ Sect. 3.
 
-1. Sect. 6.
+    _ Se••. 4.
 
-1. Sect. 7.
+    _ Sect. 6.
 
-1. Sect. 8.
+    _ Sect. 7.
 
-1. Sect. 9.
+    _ Sect. 8.
 
-1. Sect. 10.
+    _ Sect. 9.
 
-1. Sect. 11.
+    _ Sect. 10.
 
-1. Sect. 12.
+    _ Sect. 11.
 
-1. Sect. 13.
+    _ Sect. 12.
 
-1. Sect. 14.
+    _ Sect. 13.
 
-1. Sect. 15.
+    _ Sect. 14.
 
-1. Sect. 16.
+    _ Sect. 15.
 
-1. Sect. 17.
+    _ Sect. 16.
 
-1. Sect. 18.
+    _ Sect. 17.
 
-1. Sect. 19.
+    _ Sect. 18.
 
-1. Sect. 20.
+    _ Sect. 19.
 
-1. Sect. 21.
+    _ Sect. 20.
 
-1. Sect. 22.
+    _ Sect. 21.
 
-1. Sect. 23.
+    _ Sect. 22.
 
-1. Sect. 24.
+    _ Sect. 23.
+
+    _ Sect. 24.
 
 **Types of content**
 
